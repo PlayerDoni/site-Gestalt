@@ -1,2 +1,0 @@
-# site-Gestalt
-trabalho luis
